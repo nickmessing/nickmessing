@@ -2,4 +2,4 @@
 
 #### Open for job offers
 
-ceo@nickmessing.com / +373 782 72 059=
+ceo@nickmessing.com / +373 782 72 059
